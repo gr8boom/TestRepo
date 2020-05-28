@@ -1,1 +1,1 @@
-This is the end, my lonely friend.
+This is the end, my only friend.
